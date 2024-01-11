@@ -34,3 +34,14 @@ Have questions or want to discuss a project? Reach out to us at [info@imvora.dev
 Imvora is not just a digital agency; it's a partner in your digital journey, dedicated to creating extraordinary experiences.
 
 **Let's reimagine digital together! 🌟**
+
+
+
+### 💡 Support Us
+[Kreosus](https://kreosus.com/imvora) 
+<br>
+<br>
+<br> 
+Bitcoin
+<br>
+![qr](https://github.com/imvora/imvora/assets/155444741/e3aab8d5-31b4-4ae6-ba15-7155e3378b6d)
